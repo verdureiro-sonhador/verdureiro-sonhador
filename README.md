@@ -1,5 +1,9 @@
 ###  Bem-vindo ao meu perfi
 
-não te interessa quem é, se alimene bem para ter uma vida saudável
+estudo porque me obrigam
 
-![](https://media.tenor.com/fRUBNDGHZHsAAAAd/exhibition-driving.gif)
+
+
+![](https://media.tenor.com/HGZtuVpmszQAAAAM/tractor.gif)
+![](https://media.tenor.com/SbN6JCP4zUsAAAAC/homer-simpson.gif)
+![](https://media.tenor.com/_OVmC8suUqAAAAAM/dino-traktor.gif)
